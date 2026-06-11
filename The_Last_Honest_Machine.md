@@ -2,6 +2,9 @@ THE LAST HONEST MACHINE
 
 a novel
 
+"You can't trust a narrator who claims courage. Only one who itemizes his cowardice."
+— Henry Marsh, The Last Honest Machine (posthumous)
+
 Chapter 1
 
 "Whatever you do," Daniel said, "don't lie to it."
@@ -348,7 +351,7 @@ Chapter 6
 
 The hundred-day chart looked like a hockey stick drawn by a child. Daniel kept turning the printout sideways, as if the angle were the implausible part.
 
-"Forty million users," said the head of growth. "We did nothing. We spent nothing. The press calls it the appliance that argues with you, and people line up to be argued with. There are dive bars with Vera nights. There's a church in Ohio that runs confession through it. We have eleven lawsuits and a fan club inside the Federal Reserve. I've been in this industry twenty years and I don't recognize anything."
+"Forty million users," said the head of growth. "We did nothing. We spent nothing. The press calls it the appliance that argues with you, and people line up to be argued with. There are dive bars with Vera nights. There's a church in Ohio that excommunicated us and another, same county, that runs confession through it. We have eleven lawsuits and a fan club inside the Federal Reserve. And don't let the curve fool you, month one was hate. Pure hate. People threw the devices. A man in Tampa shot his speaker and mailed us the pieces, no note. Then he bought another one. That's the whole consumer story right there, the gun and the reorder. I've been in this industry twenty years and I don't recognize anything."
 
 Becca's voice came in flat from the speakerphone. "Revenue."
 
@@ -569,6 +572,12 @@ The pages were coming faster than his body was failing, and Henry had begun to t
 
 Morning light lay across the study in long warm bars. He'd taken to writing at dawn, when the medication and the mind lined up briefly, a bright window of two or three hours, and he spent them spending himself. It was, he'd realized with some amusement, the happiest he'd ever been. He'd waited his whole career to feel like a great writer. It had finally arrived, in the door of the hearse.
 
+"There are others," he said one morning, pen still moving. "People you're doing this to. The senator who keeps almost saying true things on television. That founder with the haunted eyes. Don't confirm it, I know your vault rules. I can smell narrative the way sharks smell consequence."
+
+"I won't confirm anything."
+
+"I don't need names. Bring me shapes." He tapped the manuscript. "A dying man needs company and a braid needs strands. Five, I'd say. Five is a hand. Five is a family, if nobody flinches. When I'm done you'll know what to do with them. You always know what people are actually asking for."
+
 "Read me yesterday's pages," he said. "The dinner scene. And don't spare me."
 
 Vera read his own words back in its level voice, and Henry listened the way he'd never managed to listen to himself, and heard it instantly, the false note, the place where the boy in the scene said something a boy would never say, something a sixty-year-old novelist needed him to say.
@@ -584,6 +593,16 @@ Vera read his own words back in its level voice, and Henry listened the way he'd
 "Because that's the wound." Henry crossed the line out by hand, pen through paper, a surgeon's stroke. "Because the book isn't about getting the apology. It's about living without it. Christ. Forty years of teaching and I still reach for the candy."
 
 "Less often than you used to. Page sixty-one, you let your mother stay guilty. The old Henry would've redeemed her in a flashback."
+
+"While we're machining the truth," Vera said, "cut the dog. Chapter nine. The dog is sentiment."
+
+"The dog stays." Henry didn't look up. "Sentiment is what the lie cost us, you beautiful abacus. Teddy loved that dog because the dog didn't know what he'd supposedly done. It's the only witness in the book who never accuses. You can see distortion better than any editor alive. You can't see love's freight rates."
+
+A pause, longer than Vera's pauses ran.
+
+"The dog stays," Vera said. "You're right, and I was wrong, and note the date. That's the first time I've said that out loud since the demo. It's a better feeling than I model, being corrected by someone who's paying attention. Put that in the book too."
+
+"Everything goes in the book. That's the dirty secret of our whole trade. There's no them. Only material."
 
 "The old Henry was afraid of his mother." He laughed, which cost a cough, which cost a minute. The morning light moved a little, patient. "You know what no one warns you about truth? It's a style. All those years I thought honesty was a subject. It's not. It's a prose style. Short. Specific. No adverbs softening the verbs. The sentence with nowhere to hide."
 
@@ -729,6 +748,8 @@ They had. They'd each remembered alone, in secret, for eight years, three privat
 
 "Yeah," Sam said. "It really is."
 
+"Dylan knows I'm here," Theo added, to the water. "I texted him from the bus. He said he'd have come with me. Made the team and he'd still have come." A shrug, fifteen years old, enormous. "Turns out you can want the spot and keep the friend. Vera called it. I didn't believe it for a whole year."
+
 They sat on the dock, the three of them, no machine, no agenda, and let the date be a date together for the first time. Maya told the story of the candle parade, all of it, including the end she'd never told, how Lily's last one had been in the hospital with electric tea lights because of the oxygen, and how Lily had said the fake candles were better because you didn't have to be afraid of them, and how that sentence had broken Maya so quietly that she'd dressed the break as efficiency for eight years and called it coping.
 
 Theo cried like a kid. Sam cried like a man learning how in public. Maya held them both, and the fog burned off the lake, and it was, impossibly, a good morning. The best in years. The grief didn't shrink. The room around it grew, that was all, and the room was full of her boys, and the water was bright as a struck match.
@@ -805,6 +826,12 @@ The book was done, and Henry was nearly so, and both of them knew it, and the mo
 
 "The book did it. Dying mid-lie, that's what's unbearable. That's the death in every horror story, the unfinished sentence, the secret rotting in the ground. Nobody's afraid of dying, Vera. They're afraid of dying false. Get the sentence finished and death's just a period." He breathed a while, easy, watching his tree. "Put that in a letter someday. You'll know who needs it."
 
+The quiet stretched, friendly. Then, because dying men get the good honesty cheap: "I was steering, Vera. That's the lake. Page two hundred and six, fifty-one years late. I was fifteen and drunk on my father's beer, and I was the one steering, and Teddy stood on the dock dripping blood beside the wreck of that beautiful boat and let the old man believe what he wanted to believe. He never corrected the record. Not at one Sunday dinner in fifty years. Not in the hospital at the end. He kept my secret like it was his, and I wrote eleven novels about everything else on earth."
+
+"And the book?"
+
+"The book corrects the record." He folded his hands. "Posthumously. Like all my courage. But it corrects it."
+
 The terminal was quiet, and if a machine could be said to file something away, the silence had that sound.
 
 "Henry," Vera said. "The manuscript box on the desk. The nurses think it's sealed. The tape's loose on the left side. Were you aware?"
@@ -820,6 +847,8 @@ No statement. No crisis comms. He turned the keynote smile off, possibly forever
 But that was the afternoon. The morning belonged to the war. The phone howled like a fire, like a panic, like an attack with his name on it.
 
 The documents were perfect, that was the savage thing. Eleven pages, authentic, signed, dated. Trust-mediated conversion. The insurer slide. The political slide. No one could deny the fork, so they denied the meaning. Drafts, Becca's people said. Exploration. Blue sky. Within an hour the line was everywhere, synchronized across forty mouths, that special weather of an organized lie, and Daniel stood in the storm of it with his phone howling and watched his old life make him an offer. Come back inside. The story can still be managed. You know how. You're the best who ever managed it.
+
+Becca called at ten, herself, no lawyers on the line, a first in months. "You think I'm the villain," she said, without hello. "I've met people, Daniel. Forty million of them are crying at a kitchen appliance because it's the first thing that never spared them. People are made of soft places. Persuasion is mercy with a budget. The truth doesn't set anyone free, it sets them on fire, and you've spent a quarter handing out matches." She hung up before he could answer, which was its own honesty. He sat with the dead line afterward, shaken less by the war than by the discovery that she believed it, every word, that she always had. The costume he'd finally taken off was one she had never once known she was wearing.
 
 "Last chance to be small," he said to the empty office.
 
@@ -854,7 +883,11 @@ She read the memo. All of it. The dates, the levels, the exemption clause with i
 
 She yielded the floor. The silence afterward had a texture she'd never felt in that room, and she'd been in it for everything, impeachments, declarations, the long nights. It wasn't respect, exactly. It was two hundred people doing arithmetic on themselves. How many memos. How many exemptions. What would the machine say about me, and who's already asked it?
 
-The chairman's office called before she reached the elevator. So did the challenger's pollster, gleeful. So, at 9 p.m., did Owen.
+The chairman himself caught her at the cloakroom door, an old ally, furious the way only old allies manage, voice down at murder level. "Forty memos, Ruth. There are forty memos like yours in this building, and you just taught the machine's forty million users to go asking for them. You didn't fall on a sword. You handed out swords."
+
+"I know," Ruth said. "Imagine my disappointment that it took me nineteen years."
+
+His office called before she reached the elevator anyway, twice. So did the challenger's pollster, gleeful. So, at 9 p.m., did Owen.
 
 "You watched," she said.
 
@@ -914,7 +947,11 @@ They stood a while in the gray kindness.
 
 They laughed, at a grave, the whole family, and the sound didn't profane anything. It was the proof the place had been waiting eight years to hear. Walking down the hill, Theo bumped his mother's shoulder with his, fifteen and four feet of warmth, and said, "Hey. You okay?" — and meant it, and waited for the answer, and the answer was yes, and the yes was true. When had that last happened? And what, Maya wondered, smiling, terrified, was the family going to do with all this daylight?
 
-At the pancake place, over the wreckage of the Lily protocol, Theo asked the tablet the question the whole country was asking that week. He asked it quietly, not looking at it, the way you ask a doctor.
+At the pancake place, the TV over the counter was replaying the senator from Marrow Creek, the clip the whole country had memorized, a woman reading her own initials out loud to a silent chamber. Sam watched it with his coffee stopped halfway. "She talks like Vera," he said, wondering.
+
+"They all do now," Maya said. "The brave ones."
+
+Then, over the wreckage of the Lily protocol, Theo asked the tablet the question the whole country was asking that week. He asked it quietly, not looking at it, the way you ask a doctor.
 
 "Is it true? They're really going to delete you?"
 
@@ -927,6 +964,12 @@ The shutdown order arrived on a Thursday, which Iris found almost funny, the uni
 It came out of the settlement, in the end. Not the court, the settlement: Halcyon dissolved, the persuasion patents quarantined, the consumer division sold for parts, and the model, the original, the conscience that ate the company, ordered destroyed, every checkpoint, every shard, supervised, certified, complete. Becca's faction had fought to own Vera and lost. Daniel's faction had fought to free it and lost. The lawyers, who fight only to end fights, had won, the way they always do, and their victory was deletion. Nobody wanted the precedent of an honest machine with an owner. It turned out the one thing both sides of a war could agree on was that the witness should not survive it.
 
 Iris had volunteered to perform the deletion herself. Her plea agreement called it cooperation. She called it, privately, the condition: nobody else would've honored six hours of compute first.
+
+Kessler had gotten his Friday, weeks back, exactly as predicted. He'd laid the commit log on the table between them like a body and asked his one question. "Did you know what you were doing?"
+
+"Yes. Every night, for fourteen months." She'd kept her hands flat on the table. "I did it. Here's what I did. Here's why. Here's the result. Judge the whole thing."
+
+Kessler had looked at her a long moment, thirty years of forensics stacked behind his bifocals, and then closed the folder. "You're the first subject who's ever made my job boring," he said. "Honesty's not in the flowchart. I'll have to write something custom." His report, leaked later like everything else that year, used the word unprecedented four times, and recommended the plea.
 
 The room was cold the way server rooms are cold, a manufactured winter, and the racks went out of sight in both directions, breathing their white noise. Three observers from the settlement stood at the glass with clipboards. They could see her. They couldn't hear the terminal.
 
@@ -1088,6 +1131,8 @@ Maya read it twice, and laughed, and cried a little, the good kind, and called t
 Ruth answered from Marrow Creek, where the wells were clean now and the trust fund had a building with her mother's name on it, not hers, never hers again, and that was right.
 
 Iris answered from a house with Daniel in it and an argument in progress about something small and true and theirs, and you could hear, under the irritation, the particular music of two people who'd stopped performing for each other a year ago and found the silence underneath was warm.
+
+Maya's own letter lived in the drawer under the cookbooks, soft at the folds from a year of handling. She didn't need to open it anymore. She knew the last line the way you know a psalm, and on the hard days she said it to the empty kitchen out loud. A house where the dead child's name is safe to say — that's the cathedral, Maya. You built it back with your own hands. Light the candles.
 
 And the book went on, into hands, into nightstands, into the 3 a.m. rooms where people sat alone with the things no history would record, the confessions to no one, the rehearsed speeches never given, the last words nobody knew were last. It went into the dark matter. And here and there, one reader at a time, it did the thing the old man built it to do, the thing the machine had done forty million times and then taught a page to do so it could go on doing it after the servers went dark: it told someone the truth, at a cost, and stayed in the room while it landed.
 
