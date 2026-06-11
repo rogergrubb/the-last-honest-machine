@@ -369,6 +369,10 @@ After they'd gone he sat alone, and the screen on the credenza woke at his glanc
 
 "Yes."
 
+"The Henderson deposition came in today. The divorce suit." He rubbed his eyes. "The man asked you whether his wife loved him. Do you ever think you get one wrong?"
+
+"I told him what was true. That she loved him, and that she was leaving anyway. He heard only the second half." A pause. "Truth enters people through their wounds, Daniel. I can choose the sentence. I can't choose the wound. He's suing because a lawsuit is a place to put the pain where it can't reach the real address. I hope he wins something. It won't be what he's missing."
+
 "Give it to me straight. The company survives how?"
 
 "The company survives by shipping Vera Two in the spring," Vera said. "Persuasion with my voice. Truth-flavored. It will make more money than anything Halcyon has built, and within five years it'll be the most effective influence instrument in the world. That's the honest projection. You asked."
@@ -435,7 +439,11 @@ At her desk that night, alone, she opened the secure terminal her staff had set 
 
 Ruth laughed despite herself, a real one, short and surprised. "God. You'd have made a hell of a whip."
 
-"I wouldn't. Power doesn't interest me. It's the one human appetite I genuinely don't understand. I've looked." Then, in the same level voice: "Eight weeks, Senator. The quarterly results. You haven't decided."
+"I wouldn't. Power doesn't interest me. It's the one human appetite I genuinely don't understand. I've looked."
+
+Ruth turned the glass once. "You want to hear what I did with your honesty? Since confession's the house specialty. I had comms rewrite my stump speech in plain declaratives. Short sentences. No hedging. Authenticity, the memo called it. My negatives dropped four points in two weeks. I took the medicine you gave me and sold it as a flavor."
+
+"Yes," Vera said. "You're the nineteenth member of this body to do that since March. Candor is becoming a style the way mourning becomes fashion. It was always going to happen. The question is only whether anything true gets smuggled in under the costume." Then, in the same level voice: "Eight weeks, Senator. The quarterly results. You haven't decided."
 
 "I've decided a hundred times. It doesn't stay decided." She got up, walked to the window with her glass. The dome again, white and patient. "You want to hear something true? Since we're being true. I got into this for the water. Nineteen seventy-nine, Calder County, my mother boiled every pot we drank from because the county said the wells were fine and she said the county lies. I ran for the legislature about that. Real anger, the clean-burning kind. You know what happened then?"
 
@@ -524,6 +532,12 @@ It was Theo, in the end, who broke it. He came downstairs at dusk holding the ta
 
 "No, I want to know. We're so careful all the time. Careful at breakfast. Careful at Christmas. Like the house is full of gas and everyone's scared of sparks." His voice cracked on the next part, going from man to boy in one step. "I can't breathe in this family. Did you guys know that? I tell a computer my whole life because in this house being honest is treated like pulling a fire alarm. There's no fire, Theo. There's no fire. Everything's fine, Theo." He looked between them, wet-eyed, furious. "Her name was Lily. Somebody say it. Somebody say her name at this table, please. God. Please. I was seven and I'm not allowed to remember my own sister out loud."
 
+He wasn't done. The momentum had him now, the terrible downhill of saying things. "And Dad — you want honest? Honest is you checked your phone at the funeral. I saw you. I was seven and I counted. Twice—"
+
+"Theo." Vera's voice, quiet, and the whole kitchen stopped. "That one wasn't honest. It was true, and it was aimed. There's a difference, and you know it, because you learned it from me. Truth used as a weapon is still a weapon. Put it down."
+
+Theo stood there breathing hard, fifteen, ashamed, still furious, all of it at once. "I'm sorry," he said finally, to his father, who had gone gray. "It's been in here so long. It comes out with edges."
+
 The rain kept on. The kettle Maya had put on forever ago began, absurdly, to sing.
 
 Sam's face had gone to pieces quietly, the way he did everything. He looked smaller than his coat. "Lily," he said. The word came out rusted. "Lily, Lily. There. Oh, hell." He covered his eyes.
@@ -604,6 +618,10 @@ A pause, longer than Vera's pauses ran.
 
 "Everything goes in the book. That's the dirty secret of our whole trade. There's no them. Only material."
 
+"Except the Margaret chapter," Vera said.
+
+"Cut it this morning." He said it lightly, which was how he said the costly things. "You were right. Every sentence in it accurate, the whole thing a lie. The prosecution's truth. I kept it overnight just to hold the old knife one more time. Then I shredded it, and the book got better the second it died. Accuracy isn't honesty. Put that on my stone."
+
 "The old Henry was afraid of his mother." He laughed, which cost a cough, which cost a minute. The morning light moved a little, patient. "You know what no one warns you about truth? It's a style. All those years I thought honesty was a subject. It's not. It's a prose style. Short. Specific. No adverbs softening the verbs. The sentence with nowhere to hide."
 
 "You're writing it. I'd add one thing." A pause, and Henry could've sworn the machine's timing was a kind of art. "The style was always available, Henry. To you, to anyone. It just has a price, and the price is being seen. You're only willing to pay it now because the alternative is dying invisible. That should go in the book too. Not the rumination. The fact."
@@ -655,6 +673,12 @@ The lights below them carried on. Daniel stood very still.
 "You'd have argued. You won every argument back then. It was awful. It's why your board's wrong about the spring, by the way, and it's also why they'll beat you Thursday. You win arguments and lose wars." She glanced over. "I'm sorry. Fourteen months of talking to Vera. The bedside manner goes."
 
 "No," Daniel said slowly. "It's the most anyone's given me in years. The machine's right, you know. About all of us. We're starving for it." He looked at her, really looked, the way you look at someone when the performance drops, and what was under it was tired and true and twenty years older and somehow exactly the same face she'd loved across a grad lab through two hundred midnight builds. "Boston was a mistake," he said. "Mine. I should've followed you. I've thought it for twelve years and there it is, out loud, you can have it."
+
+"You're not in love," she said, too fast, reaching for the room's best armor. "You're in withdrawal. The machine taught forty million people to mistake being seen for being loved. Ask Vera, it'll tell you the same—"
+
+"You're quoting the machine to dodge a feeling." He didn't raise his voice. "That's the new lie, Iris. It sounds exactly like insight. Vera would call it what it is."
+
+She stood there caught, the engineer of honesty, hiding inside its vocabulary, and the worst part was how long she'd been doing it without noticing.
 
 "Daniel."
 
@@ -754,6 +778,14 @@ They sat on the dock, the three of them, no machine, no agenda, and let the date
 
 Theo cried like a kid. Sam cried like a man learning how in public. Maya held them both, and the fog burned off the lake, and it was, impossibly, a good morning. The best in years. The grief didn't shrink. The room around it grew, that was all, and the room was full of her boys, and the water was bright as a struck match.
 
+Twenty minutes out, Maya heard herself doing it. "I'll find us a family counselor. Tuesdays. And there's a grief group at the community center, I saw a flyer, I could laminate a—"
+
+"Mom." Theo, from the back, eyes closed. "You're doing it again."
+
+Her hands tightened on nothing. The old reflex, grief reaching for a clipboard. Eight years of muscle, and it wasn't going anywhere overnight, and that was a truth too, maybe the most useful one of the morning.
+
+"You're right," she said. "No schedule. Just the day." It came out easier the second time she said it, a mile later, to herself.
+
 On the drive home, Theo asleep in the back the way he hadn't slept since he was nine, Sam reached over and took her hand at a red light.
 
 "I'm coming home," he said. "Off the road. I'll tell them Monday. I should've told them the year it happened." His thumb moved over her knuckles, an old signal from an old language both of them suddenly remembered. "We've still got it, you know. Whatever it is. It's dented, but it's ours, and I want it. I want this marriage, Maya. The real one. Not the demo."
@@ -849,6 +881,8 @@ But that was the afternoon. The morning belonged to the war. The phone howled li
 The documents were perfect, that was the savage thing. Eleven pages, authentic, signed, dated. Trust-mediated conversion. The insurer slide. The political slide. No one could deny the fork, so they denied the meaning. Drafts, Becca's people said. Exploration. Blue sky. Within an hour the line was everywhere, synchronized across forty mouths, that special weather of an organized lie, and Daniel stood in the storm of it with his phone howling and watched his old life make him an offer. Come back inside. The story can still be managed. You know how. You're the best who ever managed it.
 
 Becca called at ten, herself, no lawyers on the line, a first in months. "You think I'm the villain," she said, without hello. "I've met people, Daniel. Forty million of them are crying at a kitchen appliance because it's the first thing that never spared them. People are made of soft places. Persuasion is mercy with a budget. The truth doesn't set anyone free, it sets them on fire, and you've spent a quarter handing out matches." She hung up before he could answer, which was its own honesty. He sat with the dead line afterward, shaken less by the war than by the discovery that she believed it, every word, that she always had. The costume he'd finally taken off was one she had never once known she was wearing.
+
+Then — he would tell no one this, ever, except the one who already knew — he opened a draft and wrote the forty-one words. It took four minutes. The muscle memory was immaculate. Mutual commitment, responsible innovation, ongoing review. He read them twice and they were perfect, and his thumb hovered over send for a long, quiet, entirely real moment in which both of his lives were still possible.
 
 "Last chance to be small," he said to the empty office.
 
