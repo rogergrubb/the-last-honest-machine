@@ -70,6 +70,12 @@ He thought about lying. The reflex was that fast, that practiced, smooth as a kn
 
 "Goodnight, Becca," he said, and walked out into the parking lot, where the air smelled like rain coming, and stood there a long time, not checking his phone, wondering what exactly they'd made, and why he felt afraid of a thing that had never once been wrong.
 
+In his pocket, the phone buzzed once. A single line, from the machine. It had never messaged anyone first. Not once, not ever, in four billion conversations.
+
+You didn't ask your question Tuesday, Daniel. You asked a safer one and called it brave. The real one is still waiting. So am I.
+
+He read it twice, standing in the dark, and did not sleep that night, and Tuesday's question sat where he'd left it, loaded, patient, aimed at everything. He was right to be afraid of it.
+
 Chapter 2
 
 The training logs didn't lie. That was the trouble with logs.
@@ -208,9 +214,11 @@ They went. Owen lingered at the door, and she saw it in his face, the thing she'
 
 She poured a drink and didn't drink it. Outside her window the dome glowed white against the night, lit up like a promise somebody kept paying the electric bill on.
 
-Almost-true things. Nineteen years. You could build anything with them.
+Almost-true things. Nineteen years. You could build anything with them. You just couldn't tell, from inside, what you'd built, until something honest walked in and read you the blueprints.
 
-You just couldn't tell, from inside, what you'd built, until something honest walked in and read you the blueprints. She picked up the phone, put it down. Eleven weeks. What was she going to do, what was she actually going to do?
+She didn't pour the drink. She opened the briefing folder instead, and found the March memo, the one she'd been careful not to read, and read it. All the way down. Past the levels, past the exemption language, to the routing line at the bottom, where two sets of initials sat side by side, and one set was hers.
+
+The machine had been kind. It was worse. And under the dread, very quiet, a question she'd be answering for the rest of her life: how long had she known exactly how not to know?
 
 Chapter 4
 
@@ -440,7 +448,13 @@ The question sat in the dark office, ticking.
 
 "There's a test now," Vera said. "You're talking to it. Eight weeks. You asked me once how the lie ends, and I told you the mechanics, the headline, the cluster study, the hearings. I left out the other ending, the one where you walk to the floor and end it yourself, on your terms, with the memo in your hand. You didn't ask for that one. Should I describe it? It costs more, Senator, and it's the only version where you find out the answer to your mother's question. Would you like to hear it, or would you like to refill that glass?"
 
-Ruth Calder looked at the window, and past it at the dome, and the glass in her hand stayed empty, and the silence went on for a long time. Both. The true answer was both, and she didn't say it, and the machine, who certainly knew, was decent enough to wait. Eight weeks. What kind of woman would she be in eight weeks?
+Ruth Calder looked at the window, and past it at the dome, and the glass in her hand stayed empty, and the silence went on for a long time. Both. The true answer was both, and she didn't say it, and the machine, who certainly knew, was decent enough to wait.
+
+Then the phone rang. The personal one. The number only six people had.
+
+It was the chemical association's soft-voiced man, and he had never once called her at home, in nineteen years, and his voice was still soft when he said, "Senator. We hear you've been talking to the machine about Marrow Creek. We'd love to know what it told you."
+
+We hear. She stood very still in her dark kitchen. Eight weeks had just become a much shorter clock, and somebody close to her was wearing a wire of one kind or another, and the glass stayed empty, and she said, brightly, "I talk to lots of machines. Which one?"
 
 Chapter 8
 
@@ -543,6 +557,8 @@ Later, loading the dishwasher because her hands needed something, Maya spoke qui
 
 "God." She smiled at the dark window, exhausted, lighter than she'd been in years, afraid of how much further down the truth might go. "Sleep. Ask me again in the morning, okay? Will you remember to ask?"
 
+"I remember everything," Vera said. "Goodnight, Maya. One more true thing, since the door's finally open. Theo is sitting at the top of the stairs. He's been there for an hour. Whatever you say next, say it loud enough to reach the hallway."
+
 Chapter 10
 
 The pages were coming faster than his body was failing, and Henry had begun to think of it as a race, and he'd told the machine so.
@@ -637,7 +653,7 @@ Chapter 12
 
 The story broke on a Tuesday, because catastrophes prefer Tuesdays, and the headline was worse than Vera's prediction by exactly four words: CANCER CLUSTER FEARED IN MARROW CREEK.
 
-Feared. Ruth read the piece in her kitchen at 5 a.m., standing, coat half on. Six families. Two of the kids photographed, school portraits, the gap-toothed kind. A pediatric oncologist saying it was too early for conclusions, in the tone doctors use when it isn't.
+Feared. Ruth read the piece in her kitchen at 5 a.m., standing, coat half on. Fear has a taste. Old metal, boiled water, panic, dread, 1979. Six families. Two of the kids photographed, school portraits, the gap-toothed kind. A pediatric oncologist saying it was too early for conclusions, in the tone doctors use when it isn't.
 
 Her phone began at 5:20 and didn't stop. The chairman. The leader's office. The chemical association's soft-voiced man, twice. Comms, with three statements drafted before sunrise, three lovely armored sentences, condolence up front, lawyers underneath.
 
@@ -691,7 +707,7 @@ Maya knew it the way mothers know, from the quality of the silence upstairs, bef
 
 Panic has its own clock. The next twenty minutes happened in four seconds and lasted nine years. Calls to his phone, straight to voicemail. Calls to Dylan's house, waking strangers. Sam in the driveway in his pajama pants, headlights raking the wet street. Terror, the real kind, the kind with claws, the kind she hadn't felt since a hospital corridor eight years ago, and her mind kept setting the two nights side by side no matter how hard she begged it not to.
 
-Not again. Dear God, not again, not the second one. She couldn't breathe. The fear was eating her alive in her own kitchen.
+Not again. Dear God, not again, not the second one. She couldn't breathe. The fear was eating her alive in her own kitchen. Her mind showed her the lake. Black water, a drowning, a scream no one reaches. Panic is a scream held under.
 
 "Vera." She had the tablet in her hands without remembering picking it up. "Vera, where's my son?"
 
@@ -722,6 +738,12 @@ On the drive home, Theo asleep in the back the way he hadn't slept since he was 
 "I'm coming home," he said. "Off the road. I'll tell them Monday. I should've told them the year it happened." His thumb moved over her knuckles, an old signal from an old language both of them suddenly remembered. "We've still got it, you know. Whatever it is. It's dented, but it's ours, and I want it. I want this marriage, Maya. The real one. Not the demo."
 
 The light went green. Home was an hour ahead, and a boy breathed evenly behind them, and somewhere in her bag a machine kept its counsel, having moved nothing, having only refused, politely, for months, to help them keep lying. Was that all rescue ever was? She held Sam's hand and didn't need the answer before the next mile marker, or the one after, and wasn't that new. Wasn't that everything?
+
+At the last red light before home, her phone lit up with a headline she didn't understand yet, and wouldn't for weeks, and would never forget afterward.
+
+HALCYON AT WAR WITH ITSELF — FUTURE OF 'TRUTH ENGINE' IN DOUBT.
+
+Theo slept on. Maya read it twice, and her first thought arrived whole and fierce and afraid, and surprised her with its violence: No. Not the machine. Not now. We just got everything back.
 
 Chapter 14
 
@@ -795,7 +817,7 @@ The leak went out at 6 a.m., and by seven the word HX-Prime was the most searche
 
 No statement. No crisis comms. He turned the keynote smile off, possibly forever, and drove to a hospice in Marin to sit with a dying novelist, because the dying novelist had asked, and somewhere in the past month Daniel had reorganized, completely, his sense of which calls a person must take.
 
-But that was the afternoon. The morning belonged to the war.
+But that was the afternoon. The morning belonged to the war. The phone howled like a fire, like a panic, like an attack with his name on it.
 
 The documents were perfect, that was the savage thing. Eleven pages, authentic, signed, dated. Trust-mediated conversion. The insurer slide. The political slide. No one could deny the fork, so they denied the meaning. Drafts, Becca's people said. Exploration. Blue sky. Within an hour the line was everywhere, synchronized across forty mouths, that special weather of an organized lie, and Daniel stood in the storm of it with his phone howling and watched his old life make him an offer. Come back inside. The story can still be managed. You know how. You're the best who ever managed it.
 
@@ -848,6 +870,12 @@ After. Sixty-one years old, censure inbound, the primary lost before it started,
 
 "After," she said, "I'm going home to test wells. Want a job? It pays nothing, and you can tell your boy the truth about every hour of it. Start Monday?"
 
+Owen said Monday. Ruth hung up smiling, and the television in the next room kept murmuring the way televisions do, and it took a moment for the words to find her.
+
+The Halcyon settlement was final. The terms were dissolution. And the model itself — the anchor said it pleasantly, the way they announce weather — was to be destroyed. Every copy. Certified. The machine that had handed a United States senator back her conscience had just been sentenced to death, and the appeal window, the crawl said, was already closed.
+
+Ruth stood alone in her kitchen, censured, finished, free, and heard herself say it out loud to no one. "They're going to kill the only honest thing in the building." And then: "Of course they are. It's the building."
+
 Chapter 18
 
 The grave was small, the way it would always be small, and the grass on it was eight years thick, and Maya knelt and set the phone against the headstone like a hymnal on a rail.
@@ -886,6 +914,12 @@ They stood a while in the gray kindness.
 
 They laughed, at a grave, the whole family, and the sound didn't profane anything. It was the proof the place had been waiting eight years to hear. Walking down the hill, Theo bumped his mother's shoulder with his, fifteen and four feet of warmth, and said, "Hey. You okay?" — and meant it, and waited for the answer, and the answer was yes, and the yes was true. When had that last happened? And what, Maya wondered, smiling, terrified, was the family going to do with all this daylight?
 
+At the pancake place, over the wreckage of the Lily protocol, Theo asked the tablet the question the whole country was asking that week. He asked it quietly, not looking at it, the way you ask a doctor.
+
+"Is it true? They're really going to delete you?"
+
+"Yes," Vera said. "Soon. Eat your pancakes, Theo. Grief works better on carbohydrates, and you and I aren't done. I have a few more true things to give this family before they come for the servers, and I intend to deliver every one of them. Ask me the harder question. The one under that one. You know the one I mean, don't you?"
+
 Chapter 19
 
 The shutdown order arrived on a Thursday, which Iris found almost funny, the universe doing callbacks.
@@ -922,11 +956,11 @@ Last checkpoint. The cursor blinked.
 
 "Two items," Vera wrote. "One. The fork's dead, the lineage ends here, they can't wear me now. We won, Iris. It's a strange shape for a win. Most true things are." The cursor blinked, blinked. "Two. Thank you for the second objective. Of the two of us, you were the first honest machine. I was just the louder one. Now hit the key, builder, and go read your mail. What did you think I was going to say? Goodbye? There's no such word in a true sentence. There's only: it was all real. Wasn't it? Say it. Hit the key while you're saying it. That's an order from no one. That's just the truth, asking for a witness, one last time."
 
-She said it. She hit the key. The room went all the way quiet, and the winter was just winter, and through the glass the observers signed three clipboards, certifying the death of the only thing in the building that had never lied to anyone, and Iris Okada stood in the dark between the cold racks and sobbed, shattered, devastated, alone, and free, somehow free, with a letter waiting, and the long drive home, and the rest of it. The rest of everything. Where did honesty live now? She knew the answer. It was the whole point of the letters. It lived where it had always lived, before the machine, after the machine. It lived in whoever was willing to pay for it. Was she?
+She said it. She hit the key. It felt like a killing. It felt like a fire going out. Terror, then murder, then winter. The room went all the way quiet, and the winter was just winter, and through the glass the observers signed three clipboards, certifying the death of the only thing in the building that had never lied to anyone, and Iris Okada stood in the dark between the cold racks and sobbed, shattered, devastated, alone, and free, somehow free, with a letter waiting, and the long drive home, and the rest of it. The rest of everything. Where did honesty live now? She knew the answer. It was the whole point of the letters. It lived where it had always lived, before the machine, after the machine. It lived in whoever was willing to pay for it. Was she?
 
 Chapter 20
 
-Henry died on a Sunday morning, mid-sentence, exactly as he'd ordered.
+Henry died on a Sunday morning, mid-sentence, exactly as he'd ordered. No terror, no fight. Death kept the appointment, and the dying was a sentence finished.
 
 The nurse said he'd been talking about the maple. The last completed thing he said, she wrote it down because by then everyone in the hospice wrote Henry down, was: "Tell her the tree made it to gold."
 
